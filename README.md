@@ -5,3 +5,4 @@ Let your light shine!
 ### A collection of thought provoking and motivating articles and videos.
 
 13 Tips for Success in College https://www.youtube.com/watch?v=EJRWSwMh-1M
+The beginning is the most important part of the work. -----Plato
